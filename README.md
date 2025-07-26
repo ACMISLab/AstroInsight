@@ -70,5 +70,5 @@ Can contact us by below email:
 
 Fuyong Zhao: gs.fyzhao24@gzu.edu.cn
 
-wangcunshi@ucas.ac.cn
+Cunshi Wang: wangcunshi@ucas.ac.cn
 
